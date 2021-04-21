@@ -1,5 +1,5 @@
 <p align="center">
-<img src="https://cdn.discordapp.com/attachments/776784898962227202/834429958218317854/ezgif-3-f21442becb00.gif"
+<img src="https://media.discordapp.net/attachments/776784898962227202/834430908408266802/ezgif-3-f21442becb00.png?width=403&height=225"
 
 </p>
 
@@ -13,7 +13,7 @@ Hello, traveller. Welcome to **Anteiku** ![wave](https://cdn.discordapp.com/emoj
 
 * We are an **cafe themed anime and music server**, with a growing community and a ton of people and emojis for everyone to use ![thumbsup](https://cdn.discordapp.com/emojis/665047614831460362.gif?size=16)
 
-**A few things we have here::**
+**A few things we have here:**
 
 * 🌹  A chill and nice community to chill with. **We do the possible to keep this place safe and nice**
 
