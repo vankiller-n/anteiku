@@ -21,12 +21,13 @@
 
 > ![](https://cdn.discordapp.com/attachments/776784898962227202/834439989991047238/resize.png) | Many bots to play with like ![mudae](https://cdn.discordapp.com/emojis/834401111397236766.png?size=16) **[Mudae](https://top.gg/bot/432610292342587392), ![dankmeme](https://cdn.discordapp.com/emojis/834400452849303572.png?size=16) [Dank Memer](https://top.gg/bot/memes), ![owo](https://cdn.discordapp.com/emojis/834401112547262485.png?size=16) [OwO](https://top.gg/bot/owo), ![eli](https://cdn.discordapp.com/emojis/834401111855202335.png?size=16) [Eli](https://top.gg/bot/649604306596528138)** and many others
 
+> ![anteiku](https://i.imgur.com/HE32vXz.gif)
+
 ## **See ya there**, thank you for your patience
 
-##### *Making this gave me a lot of work so pls vote and review this server ![woag](https://cdn.discordapp.com/emojis/586408586385817629.png?size=16)*
-###### *[how it was originally supposed to look but none of the server listing sites did support it](https://github.com/vankiller-n/anteiku/blob/main/serverdescription.md)*
+###### *Making this gave me a lot of work so pls vote and review this server ![woag](https://cdn.discordapp.com/emojis/586408586385817629.png?size=16)*
 
-![anteiku](https://i.imgur.com/HE32vXz.gif)
-######  *If anything isnt working or you can't join the server, you can use [this invite](https://discord.gg/ztzYGsg9C)*
-## Made by:
-# ![Me](https://cdn.discordapp.com/attachments/776785391390294025/834418365077389333/resize.png) **VanKiller#6969**
+######  *If anything isnt working or you can't join the server, you can use [this invite](https://discord.gg/5CskEE5kFJ)*
+
+
+## ![Me](https://cdn.discordapp.com/attachments/776785391390294025/834418365077389333/resize.png) **VanKiller#6969**
