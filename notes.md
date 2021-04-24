@@ -21,7 +21,7 @@
 
 > ![](https://cdn.discordapp.com/attachments/776784898962227202/834439989991047238/resize.png) | Many bots to play with like ![mudae](https://cdn.discordapp.com/emojis/834401111397236766.png?size=16) **[Mudae](https://top.gg/bot/432610292342587392), ![dankmeme](https://cdn.discordapp.com/emojis/834400452849303572.png?size=16) [Dank Memer](https://top.gg/bot/memes), ![owo](https://cdn.discordapp.com/emojis/834401112547262485.png?size=16) [OwO](https://top.gg/bot/owo), ![eli](https://cdn.discordapp.com/emojis/834401111855202335.png?size=16) [Eli](https://top.gg/bot/649604306596528138)** and many others
 
-> ![anteiku](https://i.imgur.com/HE32vXz.gif)
+> ![anteiku](https://i.imgur.com/HE32vXz.png)
 
 ## **See ya there**, thank you for your patience
 
